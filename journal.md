@@ -6,3 +6,4 @@
 2 June 2024 got airdrop ULTIVERSE
 3 June 2024 bridged ETH in Taiko Mainet 
 4 June 2024 Airdrop for BUILD Season 1 
+5 June 2024 got Taiko Airdrop and sold 52 $TAIKO

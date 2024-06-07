@@ -8,3 +8,4 @@
 4 June 2024 Airdrop for BUILD Season 1 
 5 June 2024 got Taiko Airdrop and sold 52 $TAIKO
 6 June 2024 got drop Ultiverse
+7 June 2024 bought Build NFT on Base Chain

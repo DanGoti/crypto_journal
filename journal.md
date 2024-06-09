@@ -10,3 +10,4 @@
 6 June 2024 got drop Ultiverse
 7 June 2024 bought Build NFT on Base Chain
 8 June 2024 bought Degen Domain
+9 June 2024 minted NILL PILL NFT

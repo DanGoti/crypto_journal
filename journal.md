@@ -12,3 +12,4 @@
 8 June 2024 bought Degen Domain
 9 June 2024 minted NILL PILL NFT
 10 June 2024 minted IO Airdrop
+11 June 2024 got PILL Airdrop 

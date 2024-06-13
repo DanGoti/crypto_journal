@@ -13,4 +13,5 @@
 9 June 2024 minted NILL PILL NFT
 10 June 2024 minted IO Airdrop
 11 June 2024 got PILL Airdrop 
-12 Junde 2024 got Aethir Airdrop
+12 June 2024 got Aethir Airdrop
+13 June 2024 got BUILD Airdrop

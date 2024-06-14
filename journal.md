@@ -15,3 +15,4 @@
 11 June 2024 got PILL Airdrop 
 12 June 2024 got Aethir Airdrop
 13 June 2024 got BUILD Airdrop
+14 June 2024 bought SOL Tockens

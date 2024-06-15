@@ -16,3 +16,4 @@
 12 June 2024 got Aethir Airdrop
 13 June 2024 got BUILD Airdrop
 14 June 2024 bought SOL Tockens
+15 June 2024 minted 2 NFTs on Base

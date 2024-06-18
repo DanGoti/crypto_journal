@@ -19,3 +19,4 @@
 15 June 2024 minted 2 NFTs on Base
 16 June 2024 did XION tasks
 17 June 2024 bought ZK token
+18 June 2024 did Morph Testnet

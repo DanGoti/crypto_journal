@@ -21,3 +21,4 @@
 17 June 2024 bought ZK token
 18 June 2024 did Morph Testnet
 19 June 2024 did Taiko Mainet tasks
+20 June got Layer Zero drop

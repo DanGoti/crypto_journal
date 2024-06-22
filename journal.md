@@ -23,3 +23,4 @@
 19 June 2024 did Taiko Mainet tasks
 20 June 2024 got Layer Zero drop
 21 Junde 2024 got Talent drop
+22 June 2024 got Linea park LXP

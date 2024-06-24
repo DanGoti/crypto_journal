@@ -25,3 +25,4 @@
 21 Junde 2024 got Talent drop
 22 June 2024 got Linea park LXP
 23 June 2024 did Layer3 tasks
+24 June 2024 started daily streak in farcaster

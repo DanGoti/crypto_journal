@@ -27,3 +27,4 @@
 23 June 2024 did Layer3 tasks
 24 June 2024 started daily streak in farcaster
 25 June 2024 got Holograph Airdrop
+26 June 2024 got more Talent

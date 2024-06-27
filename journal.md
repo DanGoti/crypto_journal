@@ -28,3 +28,4 @@
 24 June 2024 started daily streak in farcaster
 25 June 2024 got Holograph Airdrop
 26 June 2024 got more Talent
+27 June 2024 did XION tasks

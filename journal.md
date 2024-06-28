@@ -29,3 +29,4 @@
 25 June 2024 got Holograph Airdrop
 26 June 2024 got more Talent
 27 June 2024 did XION tasks
+28 June 2024 did taiko quests

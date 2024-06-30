@@ -31,3 +31,4 @@
 27 June 2024 did XION tasks
 28 June 2024 did taiko quests
 29 June 2024 did farcaster quests
+30 June 2024 did Solayer tasks

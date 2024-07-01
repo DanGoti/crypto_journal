@@ -32,3 +32,4 @@
 28 June 2024 did taiko quests
 29 June 2024 did farcaster quests
 30 June 2024 did Solayer tasks
+1 Juli 2024 did Linea Layer3 quests

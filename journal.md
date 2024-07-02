@@ -33,3 +33,4 @@
 29 June 2024 did farcaster quests
 30 June 2024 did Solayer tasks
 1 Juli 2024 did Linea Layer3 quests
+2 June 2024 bought explorer NFT für Layer3

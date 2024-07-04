@@ -35,3 +35,4 @@
 1 Juli 2024 did Linea Layer3 quests
 2 June 2024 bought explorer NFT für Layer3
 3 June 2024 joined towns in farcaster
+4 June 2024 did taiko and Linea tasks

@@ -37,3 +37,4 @@
 3 June 2024 joined towns in farcaster
 4 June 2024 did taiko and Linea tasks
 5 June 2024 got JUP airdrop
+6 June 2024 did Berachain quests

@@ -38,3 +38,4 @@
 4 June 2024 did taiko and Linea tasks
 5 June 2024 got JUP airdrop
 6 June 2024 did Berachain quests
+7 June 2024 did Layer3 quests
